@@ -1,1 +1,2 @@
 Gabriel Valdez
+valdezga@oregonstate.edu
